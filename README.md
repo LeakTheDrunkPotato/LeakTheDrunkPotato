@@ -2,7 +2,7 @@
 - 👀 I’m interested in animals and games of all kinds, such as MineCraft. I'm not too great at describing myself, as you might've already noticed.
 - 🌱 I’m currently learning German.
 - 💞️ I’m looking to collaborate on nothing for the time being.
-- 📫 How to reach me: DISCORD: leakthedrunkpotato || REDDIT: HopperrKing
+- 📫 How to reach me: DISCORD: leakthedrunkpotato || REDDIT: u/HopperrKing
 
 <!---
 LeakTheDrunkPotato/LeakTheDrunkPotato is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
